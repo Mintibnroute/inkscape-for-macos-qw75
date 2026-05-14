@@ -1,4 +1,4 @@
-# 
+# premium Inkscape for macOS Automation | vector tools + typography tools offers the most advanced Inkscape for macOS automation, with vector tools and typography tools. Ideal for
 
 
 
